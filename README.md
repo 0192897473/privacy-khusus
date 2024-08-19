@@ -1,1 +1,2 @@
 # Semua-device
+ngentotks goww
